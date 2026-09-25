@@ -60,7 +60,7 @@ Aprendo con facilidad, disfruto explorar nuevas herramientas y entender el porqu
 
 ## 📞 Contacto
 
-📧 *Correo:* gomezhurtadoyiradirley@gmail.com
+📧 *Correo:* 3143857707yira@gmail.com
 🚀 *GitHub:* https://github.com/Yiragomez
 🧑‍🚀 *LinkedIn:* https://www.linkedin.com/feed/
 🧑‍🚀 *upwork:* https://www.upwork.com/freelancers/~017fa0c4e5d65dcbe2
